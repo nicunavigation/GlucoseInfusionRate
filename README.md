@@ -1,4 +1,4 @@
-# Privacy Policy for NICU Navigation – GIR Calculator
+# Privacy Policy for NICU Navigation
 
 **Effective Date:** 7/28/2025
 
